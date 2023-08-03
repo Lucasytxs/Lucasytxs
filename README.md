@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Estudante no 1 Ano do Ensino Medio Colegio estadual Rio branco - Parana
 <!--
 **Lucasytxs/Lucasytxs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
